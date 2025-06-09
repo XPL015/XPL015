@@ -5,4 +5,4 @@
 - Entre em contato comigo:
 - leonardo.souza.silva05@escola.pr.gov.br
 
-![.](https://tenor.com/f6JEVjgOXoI.gif)
+![.](https://media1.tenor.com/m/RT3nHjSQbQoAAAAd/happy-smile.gif)
