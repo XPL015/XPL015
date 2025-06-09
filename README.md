@@ -5,4 +5,4 @@
 - Entre em contato comigo:
 - leonardo.souza.silva05@escola.pr.gov.br
 
-![.](https://tenor.com/pt-BR/view/mo-i'm-ready-moses-brings-plenty-mo-brings-plenty-yellowstone-gif)
+![.](https://tenor.com/f6JEVjgOXoI.gif)
